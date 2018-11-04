@@ -17,8 +17,8 @@ Die Gründungsmitglieder haben sich in einer Liste eingetragen. Diese Liste wurd
 ## 4) Vision des Lotterie Hamburg e.V.
 
 Es wurde über die Zukunftsvision des Vereins diskutiert.
-Gegenstand der Diskussion war unter anderem die Aufnahme weiterer Mannschaften und 
-Diesbezüglich einigte man sich darauf, dass prinzipiell eine Bereitschaft für die Aufnahme weiterer Liga-Team vorhanden ist - sofern dies mit den Vereins-Ressourcen vereinbar ist.
+Gegenstand der Diskussion war unter anderem die Aufnahme weiterer Liga-Mannschaften.
+Diesbezüglich einigte man sich darauf, dass prinzipiell eine Bereitschaft für die Aufnahme weiterer Liga-Teams vorhanden ist - sofern dies mit den Vereins-Ressourcen vereinbar ist.
 
 ## 5) Festlegung des Mitgliedsbeitrag
 
