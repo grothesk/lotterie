@@ -1,4 +1,4 @@
-h1. Tagespunkte für die Mitgliederversammlung am 22.12.2018
+# Tagespunkte für die Mitgliederversammlung am 22.12.2018
 
 - Wahl des Vorstandes
 - Verwaltung der Dokumente via github
